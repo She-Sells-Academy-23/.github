@@ -32,7 +32,7 @@ She Sells Academy boasts a vibrant community of like-minded women, fostering col
 
 Graduates gain access to a curated list of high-paying remote sales roles, leveraging the academy's industry connections to secure lucrative positions.
 
-[Join She Sells Academy Now](https://kelexbawz.com/she-sells-academy)
+[Join She Sells Academy Now](https://whop.com/she-sells-academy?a=kelechienwere1234)
 
 ---
 
@@ -40,7 +40,7 @@ Graduates gain access to a curated list of high-paying remote sales roles, lever
 
 She Sells Academy offers a premium program priced at \$2,000 per month, with additional options available. While the investment is significant, the program promises substantial returns through high-paying remote sales roles and comprehensive training. For those committed to transforming their careers, the value proposition may justify the cost.
 
-[Join She Sells Academy Now to Unlock Your Sales Potential](https://kelexbawz.com/she-sells-academy)
+[Join She Sells Academy Now to Unlock Your Sales Potential](https://whop.com/she-sells-academy?a=kelechienwere1234)
 
 ---
 
@@ -68,7 +68,7 @@ She Sells Academy is tailored for:
 
 * **Career Advancement**: Gain the skills and confidence to secure high-paying remote sales roles.
 
-[Join She Sells Academy Now to Elevate Your Sales Career](https://kelexbawz.com/she-sells-academy)
+[Join She Sells Academy Now to Elevate Your Sales Career](https://whop.com/she-sells-academy?a=kelechienwere1234)
 
 ---
 
@@ -88,4 +88,4 @@ While She Sells Academy offers numerous benefits, potential participants should 
 
 She Sells Academy presents a compelling opportunity for women aiming to excel in remote high-ticket sales. With comprehensive training, personalized coaching, and a supportive community, the program equips participants with the tools needed for success. However, prospective members should carefully consider the investment and commitment required. If you're ready to take control of your career and embrace the world of remote sales, She Sells Academy could be the catalyst for your transformation.
 
-[Join She Sells Academy Now to Start Your Journey](https://kelexbawz.com/she-sells-academy)
+[Join She Sells Academy Now to Start Your Journey](https://whop.com/she-sells-academy?a=kelechienwere1234)
